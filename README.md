@@ -5,4 +5,4 @@
 <p align="center"><small> I'm always down to talk! If I'm unresponsive, feel free to send a whisper! Just keep in mind that I'm an adult, so please appropriately based on your age. </small></p>
 <p align="center"><small><i> I will walk away if the conversation shifts to pro/darkships or anything suggestive. I don't wanna hear about that stuff lol </i></small></p>
 
-![1000008937](https://github.com/user-attachments/assets/d0fbb11c-3104-4fe6-a971-318d51522ec8)
+![1000008936](https://github.com/user-attachments/assets/9efc547b-f5bd-4db7-9d43-af5155d72a9d)
