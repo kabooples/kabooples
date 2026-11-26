@@ -1,7 +1,7 @@
 ![1000008934](https://github.com/user-attachments/assets/ec4db034-61e2-4150-8088-e05439edac7a)
 <h2 align="center"> 𝓗𝓮𝓵𝓵𝓸<i>!!</i> (｡･∀･)ﾉﾞ </h2>
 <p align="center"><small> You can call me Kabooples, Kaboop, Booples, or anything you'd like! </small></p>
-<p align="center"><small> My interests include: Hetalia, Invincible, Umamusume, Danganronpa, The Boys, Chainsaw Man, Jujutsu Kaisen, Jojo's Bizarre Adventure, Breaking Bad, Five Nights at Freddy's, My Little Pony, SCP Foundation, Gachiakuta, South Park, Sonic, and a whole bunch of other things along those lines. </small></p>
+<p align="center"><small> My interests include: Hetalia, Invincible, Umamusume, The Boys, Chainsaw Man, Jujutsu Kaisen, JJBA, Breaking Bad, FNAF, MLP, SCP Foundation, South Park, Sonic, and a whole bunch of other things along those lines. </small></p>
 <p align="center"><small> I'm always down to talk! If I'm unresponsive, feel free to send a whisper! Just keep in mind that I'm an adult, so please act appropriately based on your age. </small></p>
 <h2 align="center">𝓓𝓝𝓘</h2>
 <p align="center"> Basic DNI + lolisho and pro-generative AI<p>
